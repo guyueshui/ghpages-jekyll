@@ -4,4 +4,4 @@ I'm glad you are here. I plan to talk about ...
 
 yychi love yukynn!
 
-[bi](bilibili.com)
+[My new page!](https://guyueshui.github.io)
